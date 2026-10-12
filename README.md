@@ -4,12 +4,14 @@ A blog were girls can learn and discover about the secrets of beauty and glowing
 
 Group members:
 
-Randa Ehab Ahmed
+Randa Ehab Ahmed: Social Media Mangaer
 
-Habiba Mohamed Abo Bakr
+Habiba Mohamed Abo Bakr: Marketing Researcher
 
-Jana Shaban Ragab
+Jana Shaban Ragab: Content Writter
 
-Kenzy Ramsy Samir
+Kenzy Ramsy Samir: Copy Writter
 
-Farida Hossam Eldin
+Farida Hossam Eldin: Ads Manger
+----
+Instructor: Momen ElBadri
