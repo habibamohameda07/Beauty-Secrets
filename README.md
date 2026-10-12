@@ -13,5 +13,6 @@ Jana Shaban Ragab: Content Writter
 Kenzy Ramsy Samir: Copy Writter
 
 Farida Hossam Eldin: Ads Manger
+
 ----
 Instructor: Momen ElBadri
